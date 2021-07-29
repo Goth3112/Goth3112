@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Goth3112
 - 👀 I’m interested in me
 - 🌱 I’m currently learning to be myself
-- 💞️ I’m looking to collaborate on the go
+- 💞️ I’m looking to collaborate on the fly
 - 📫 How to reach me? poke 
 
 <!---
