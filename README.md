@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Goth3112
-- 👀 I’m don't know what to do with my life
-- 🌱 I’m currently living a slow life
-- 💞️ I'm enjoying being alone tho
-- 📫 How to reach me? Who knows! Ask the God please!
+- 👋 Hi, I’m Void. The Nihility beyond radical.
+- 👀 I’m bring the emptiness to the world
+- 🌱 I’m currently living in the Desolated World
+- 💞️ I'm enjoying being null.
+- 📫 How to reach me? Who knows! God Only Knows!
 
 <!---
 Goth3112/Goth3112 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
