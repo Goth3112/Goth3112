@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Void. The Nihility beyond radical.
-- 👀 I’m bring the emptiness to the world
-- 🌱 I’m currently living in the Desolated World
-- 💞️ I'm enjoying being null.
+- 👀 I’ll bring the emptiness to the world
+- 🌱 Currently living in the Desolated World
+- 💞️ Enjoying being null.
 - 📫 How to reach me? Who knows! God Only Knows!
 
 <!---
